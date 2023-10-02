@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Semelist
+- 👀 This is a private test log report account
+- 📫 How to reach me: mihhail.tsornoi@semel.fi
